@@ -1,6 +1,6 @@
  Hi! I'm Angel 👋
 
-🔭 Mechatronics Engineering student | 3rd Year | ROBOTICS 2
+🔭 Mechatronics Engineering student 
 
 Email :angelmanalo51@gmail.com
 
